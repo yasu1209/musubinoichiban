@@ -1,3 +1,18 @@
+## 190312 SKE48 结缘饭团一级棒 ep97
+
+> 出演者:太田彩夏、北野瑠華、惣田紗莉渚、佐藤佳穂
+
+用人偶來回顧快要結束的平成時代的往事！
+
+太田彩夏示範平淡的主題無自覺發放笑彈！
+
+[酱坛](http://www.maeda-atsuko.cn/forum.php?mod=viewthread&tid=373524)
+
+[开衣坛](http://www.ske48.org/viewthread.php?tid=63095)
+
+[B站](https://www.bilibili.com/video/av47238618)
+
+
 ## 190305 SKE48 结缘饭团一级棒 ep96
 
 > 出演者:北川綾巴、青木詩織、松村香織、菅原茉椰
