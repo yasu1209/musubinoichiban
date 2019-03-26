@@ -1,3 +1,18 @@
+## 190319 SKE48 结缘饭团一级棒 ep98
+
+> 出演者:北川綾巴、内山命、江籠裕奈、大場美奈、高柳明音、竹内彩姫、熊崎晴香、斎藤真木子、菅原茉椰、須田亜香里
+
+飯團倒數最後兩集平成武士與成員島上遊！
+
+運動會尋找天使整人向吉村示愛來玩個夠！
+
+[酱坛](http://www.maeda-atsuko.cn/forum.php?mod=viewthread&tid=373545)
+
+[开衣坛](http://www.ske48.org/viewthread.php?tid=63100)
+
+[B站](https://www.bilibili.com/video/av47434722)
+
+
 ## 190312 SKE48 结缘饭团一级棒 ep97
 
 > 出演者:太田彩夏、北野瑠華、惣田紗莉渚、佐藤佳穂
