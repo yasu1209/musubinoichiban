@@ -10,7 +10,7 @@
 
 [开衣坛](http://www.ske48.org/viewthread.php?tid=63100)
 
-[B站](https://www.bilibili.com/video/av47434722)
+[B站](https://www.bilibili.com/video/av47450788)
 
 
 ## 190312 SKE48 结缘饭团一级棒 ep97
